@@ -1,1 +1,1 @@
-# euc.github.io
+# euc2025.github.io
